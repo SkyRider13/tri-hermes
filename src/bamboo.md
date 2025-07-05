@@ -89,7 +89,7 @@ I get the overwhelming feeling that this is coming too late, but here's a lightn
 
 ・Mr. Kotomine
 Kotomine's voice line for Amor.  
-The "she always dreamed~" quote is something his wife told him. Sorry it wasn't clear enough.  
+The "[he always dreamed~](https://reddit.com/r/grandorder/comments/1011kqa/gregori_rasputins_lines/)" quote is something his wife told him. Sorry it wasn't clear enough.  
 
 Also, the reason why Muramasa and Rasputin ask about Limbo is because he locked himself inside his Singularity.  
 Only Chaldea knows the end of Limbo's story.  
