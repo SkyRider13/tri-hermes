@@ -2,6 +2,31 @@
 
 Note: These lore-important diary entries are archived from the respective [Beast's Lair thread](https://forums.nrvnqsr.com/showthread.php/5875-The-BAMBOO-BROOM-DIARY-%28Nasu-and-Takeuchi-blog%29). More information in thread OP.
 
+## 2024/2/14: Untitled. (Kinoko)  
+
+I often find myself thinking about Alastor ever since last week, and when I’m not careful, I even start humming INSANE as well. I never imagined I would get this hooked on a character at the age that I’m in. Thanks Amazon Prime.  
+
+If you like animation, devils, dramas about those who try their darnedest to somehow live life to the fullest, and innovative productions, then you should go give Hazbin Hotel a viewing right this second.  
+
+The first episode starts off very information dense, so you might think that you’re not quite gonna be able to keep up, but once Adam’s musical starts in the second part, those impressions go flying. After that, it’s just a nonstop ride until the finale of episode eight.  
+
+
+　　　◆
+
+
+These days when you mention “Tonelico”, a certain wildcat reporter in a snazzy suit comes to mind. Real crazy manga we got on our hands, don’t we? Nothing less from the fetish-exhibition that is Jump+. I love it, personally.  
+
+Greetings. Valentine’s is here, isn’t it? I was personally responsible for the fairy-gang together with Nemo Santa. That said, Nemo and Nemo Santa are slightly different when it comes to their roles, so I thought I’d explain.  
+
+In the main story, Sion is the one who summoned/formed Heroic Spirit Nemo, while Nemo Santa was formed through his own wishes on the premises of the sort of what-if story that the event represented. Or that’s how I think about it.  
+
+Well then, Happy Valentine. 
+
+TL Notes
+
+Alastor: Hazbin Hotel character. INSANE is one of his character songs.  
+Tonelico: Main character of a new manga in Jump+ called Hitoner which follows the adventures of a feline society that discovers a human. 
+
 ## 2023/29/11 - Thank ya! 
 
 One day late, but thank ya for all the birthday messages.  
