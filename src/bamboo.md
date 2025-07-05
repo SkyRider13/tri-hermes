@@ -2,6 +2,113 @@
 
 Note: These lore-important diary entries are archived from the respective [Beast's Lair thread](https://forums.nrvnqsr.com/showthread.php/5875-The-BAMBOO-BROOM-DIARY-%28Nasu-and-Takeuchi-blog%29). More information in thread OP.
 
+## 2023/29/11 - Thank ya! 
+
+One day late, but thank ya for all the birthday messages.  
+With many people celebrating online and the wonderful gifts I got from my friends IRL, this birthday served also as a momentous celebration of my return.  
+I'd like to take this opportunity to give my thanks.  
+I'm truly grateful for your care and concern!
+
+...I don't exactly mean this as an expression of gratitude, but I did FGO's Christmas event for the end of December.  
+This event will feel like a soft cup of tea after you fill your stomach with this year's SUPER-packed Gudaguda, but I hope that is to your liking.  
+
+Oh, but please understand... This year's Christmas being a Nasu event does not mean it will be Tsukihime-related.  
+
+　　　◆
+
+Then, as it's customary, I'll be promoting my favorite manga, anime, and games.  
+
+Manga: Boku ga Koi suru Cosmic Star
+Currently at 1 volume released!  
+It initially seemed like something I'd never seen before: a strange comedy about the relationship between an American-style superhero and a super-good-natured civilian... but it turned out to be a Boy Meets Girl story in the mold of the classics.  
+I don't need to tell you that Star's design is wonderful, but really, everything about the main duo's personality and behavior is lovely.  
+I'd dare say no hair drill in the universe looks as good as the one here.  
+Star really goes to show that you can tell a good superhero story without needing any supervillains or threats to the world.  
+Oh, but don't look too much into what the author did before.  
+...I'm not saying Meruko is a series I wouldn't recommend, but it has a very different age rating...  
+
+Anime: Scott Pilgrim  
+I care too much about the Scott Pilgrim movie, so I went in from the perspective of the annoying fan who didn't believe this could outdo the movie's swift pacing. However...  
+
+Watching episode 1→  
+"That's nice and all but doesn't really compare to the movie's speed… but it would be rude to drop it before checking the ending song."  
+Episode 1's ending→  
+"　　　What？　　　"（dot-eyed）
+Episode 1 ending theme→  
+"Remakes always have these little retouches, I guess?　But wait? This twist changes every future episode. What are they going for here?"  
+Watching episode 2→  
+"Little retouches my ass. This is a spinoff with Ramona as the main character instead of the love interest. Now I can enjoy it for what it is instead of comparing it to the movie!"  
+Watching episode 3→  
+"It's not a spinoff... It's a sequel... And it's trying to redeem each of the boyfriends when the movie made them into just villains to be defeated in 10 minutes each... And it's really good, on top of that…"  
+Watching episode 4~8→  
+"Awesome."  
+After watching→  
+"Everything wrapped up so neatly I don't think I can ever watch the movie again."  
+
+I recommend this one especially for Scott Pilgrim movie elitists like me.  
+Its only flaw is that it loses half of the appeal if you didn't watch the movie.  
+
+
+Video game: SANABI  
+A chain-based action game that just came out on Steam.   
+I didn't come in expecting much but took fatal damage as a game writer.  
+I have nothing to say.  
+Explaining any details would diminish the game's shine.  
+
+There are some emotions that only pixel art can deliver.  
+
+　　　◆
+
+Then, as it's customary, I'll be wrapping it up with FGO trivia.  
+I get the overwhelming feeling that this is coming too late, but here's a lightning round of mini-info I couldn't fit in the game, as a recap of 2023.  
+
+・Mr. Kotomine
+Kotomine's voice line for Amor.  
+The "she always dreamed~" quote is something his wife told him. Sorry it wasn't clear enough.  
+
+Also, the reason why Muramasa and Rasputin ask about Limbo is because he locked himself inside his Singularity.  
+Only Chaldea knows the end of Limbo's story.  
+So Muramasa and Rasputin had to ask about Limbo because it'd be rude to stay in the dark about a coworker.  
+
+・Tezca's Final Ascension line  
+After the hopeless battle. Dawn breaks with the starting rise of the sun.  
+Although they repelled the enemy forces, the protagonist was shot in the heart and Tezcatlipoca took lethal damage to his Saint Graph. All there is left for them is to wait for their not-so-distant deaths.  
+In that situation, Tezcatlipoca chats and sends them off as causally as he's ever been.  
+That's the scene I envisioned for it and described to his actor. His delivery was exactly as it was in my head.  
+
+・About ORT Xibalba's Skills
+The 7 Skills used in the last part are as follows:  
+Big Three: The 3 extinction events  
+Huge damage at first, followed by gradual damage later. A red wind.  
+Genesis: The chronicle of creation  
+The beginning of the world. It seals Arts. An orange wind.  
+Mictlan: The golden rainforest  
+A new sun. Minor damage, absorbs HP. A yellow wind.  
+Deinos: The age of paradise  
+The prosperity of the deinos. Charges himself with Invul Pierce. A green wind.  
+Ka'an: The age of darkness  
+Ka'an's tenacity. This Skill sends ORT into an asleep state. Colorwise, that's blue.  
+Ocelotl: The age of the jaguarheads  
+Development derived from mingling with Pan-Human History. Charges himself with buff removal. An indigo wind.  
+Chaldea: Crossers of the Boundary  
+The ones who venture beyond the Boundary. Each hit instakills one Servant but super-buffs the remaining ones. The instadeath doesn't work on the last Servant standing, and at this point, they have 5 Servant's worth of ultra-buffs. A purple wind.    
+
+・Camazotz  
+He became an Evil of Humanity only after ORT's hibernation. He was registered as the one who killed Ka'an. Paradoxically enough, this allowed Ka'an to survive despite there being no one left to tell its story and nothing proving it existed.  
+He was only able to die in LB7 because he was defeated by a humanoid mankind, one like his own. His will was to never give in to anything other than mankind.  
+
+・Aesc the Rain Witch  
+Habetrot shows up in her Skill animation, but the Rain Witch actually hasn't met Tottrot yet. They became friends in Chaldea. It'd be sad to have only the Second Ascension exchanging smiles with Habetrot.  
+
+・Aesc the Savior
+In her Savior days, she used her Extra Attack against Wryneck.  
+That was when she gave her all and it wasn't enough to beat him, so she gambled on her ability to guess his next move last effort hit. The damage to Wryneck was essentially equivalent to losing 1 Break Gauge, while Aesc was left at 1 HP and NP (Guts still not spent).  
+However, seeing a weaker being overcome their difference in ability and fortuity with a miracle caused him to feel shocked for the first time, so he declared the fight a tie.  
+Since then, he became Aesc's self-proclaimed rival who would always show up (at the most inexplicably convenient moments) to help her in truly unsalvageable situations.  
+
+・The Tezcatli signboard in the summer event  
+My initial request was only for them to line up 4 Ocelotl battle sprites to vaguely emulate the original image, but thankfully, the Lasangle staff said they wanted to properly draw, resulting in what you say in the final product. I can always count on the Lasengle staff to execute my crimes. 
+
 ## 2023/8/11: A report. (Kinoko)
 
 Congratulations to Snack Basue for the anime adaptation!  
