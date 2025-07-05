@@ -2,6 +2,16 @@
 
 Note: These lore-important diary entries are archived from the respective [Beast's Lair thread](https://forums.nrvnqsr.com/showthread.php/5875-The-BAMBOO-BROOM-DIARY-%28Nasu-and-Takeuchi-blog%29). More information in thread OP.
 
+## 2024/18/09: Untitled. (Kinoko)  
+
+Operational message! Operational message!
+
+OC3 part 3 has roughly the same amount of text as part 1. It won't be anything bizarrely long, so feel free to rush through it on one evening or keep an 1 hour a day pace, whichever you prefer.
+
+Also, the OC3 I mentioned in the interview is OC4. I still couldn't say anything back then, so I had to play dumb and slip that mention in as "OC3".
+
+Now I'm living for the weekly releases of Strikeout Pitch. 
+
 ## 2024/5/7: Goodnight 
 
 Fare thee well, Golden Week of 2024. May we meet again.  
