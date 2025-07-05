@@ -1,5 +1,7 @@
 **# Nasu and Takeuchi's 8th Anniversary interview**
 **---  **
+
+## Part 1 (on Arcueid, Holmes, and Tezcatlipoca)
   
 **I was surprised to see Archetype:Earth's sudden appearance on last year's 7th Anniversary. Before anything, can you tell us the story behind her implementation?**
 
@@ -92,6 +94,8 @@ Nasu: Uh, can bullets slip through the gap between the two halves of the brain? 
 **I vaguely remember Kotomine saying he wasn't helpful.**
 
 Nasu: If you pay attention, you'll see he wasn't saying he failed. It was just the usual Kotomine joke, the "What a shame... (that this didn't leave a scar)".
+
+## Part 2 (on U-Olga, Daybit, and ORT)
 
 **I was quite surprised that U-Olga Marie travels with the protagonists in LB7. Was this twist planned from the start?**
 
@@ -208,6 +212,8 @@ Nasu: Remember Tepeu can glide. That plus his Pan-Human magecraft allows him to,
 Takeuchi: You can also tell by listening to the sound effect in the gauge break.
 
 Nasu: It's the sound effect from when the Mystic Eyes of Death Perception activate in Melty Blood: Type Lumina. That's a completely unimportant detail no one needed to know about, but the people who noticed it on the spot terrify me (laughs).
+
+## Part 3 (on Ordeal Call and future content)
 
 **The next questions will be about OC1. OC1: World within the Imaginary Number Compass, PAPERMOON was a chapter that mixed the essences of many past installments such as Fate/stay night and Fate/Zero.**
 
