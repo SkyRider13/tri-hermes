@@ -2,6 +2,73 @@
 
 Note: These lore-important diary entries are archived from the respective [Beast's Lair thread](https://forums.nrvnqsr.com/showthread.php/5875-The-BAMBOO-BROOM-DIARY-%28Nasu-and-Takeuchi-blog%29). More information in thread OP.
 
+## 2023/8/11: A report. (Kinoko)
+
+Congratulations to Snack Basue for the anime adaptation!  
+There’s a sense of reserve felt from how they excluded Morita from the trailer…  
+“Actually, wait… have they banished Morita’s entire existence from the anime?  
+How could they… how dare they…  
+That said, it’s true that to the attentive reader, that being the case with Morita makes a lot of sense… I guess?”  
+Anyway, I’m looking forward to the anime enough to be theorizing about stuff like this.   
+
+The dialogue of the manga is so well made, you really feel an incredible intricacy in each and every chapter.  
+And with each volume, there’s 20 chapters included, so we’re talking about some real cost performance here.  
+By around 2 volumes in, the world of Snack Basue is complete, and you can enjoy the healing effects of Akio’s frank speeches at the end of each work day.  
+The manga just came out with its 13th volume, but I hope it keeps going for all eternity.  
+
+◆
+
+Great job on F/GO 8th Anniversary Festival, everyone.  
+This year, much like all the others, was like being in paradise.
+
+To all the players who showed up in the sweltering heat…  
+To all the staff who ran the venue…  
+And to all of the wonderous cast who stepped up onto the stage…  
+Thank you all so very much! I hope we can meet again next year!  
+
+I met tons of wonderful people at the venue, but the most shocking and emotional of these encounters was a muscular man about 188 cm tall.  
+Despite his hyper-powerful body, he had an Xtra gentle heart, and I was able to enjoy a delightful otaku conversation with him.  
+I’ve heard he goes by the name of “Great O Khan”, by the way.  
+
+◆◆
+
+…And those two things were stuff I’d wanted to put out on the blog in June, and August the 1st respectively, but now I had to put it here, with the calender having turned Auguest the 11th, right before Comiket.  
+This is a matter of personal circumstance, but at the end of January of 2023, right after LB7 had been released, I started taking it easy, what with my workload having been eased, and somehow wrecked my body, before entering into a long period of recovery.
+
+At first, I thought it was just a normal cold, but when I breathed, I just kept coughing, and eventually it became so much, I started having convulsions all over my body. I was like, this is bad, and started visiting the hospital regularly.  
+During this time, I could only get the bare minimum of work done, and I was in such a weak state that I didn’t even have enough energy to update this blog.
+
+As it turns out, it was a case of asthma, but throughout February to April, I tried changing hospitals several times without any of them finding the cause. Just when I thought it was getting kinda bad, I was introduced to a good pulmonologist by an acquaintance and started making a steady recovery.
+
+And now back to the present, it appears my medication has led to a complete recovery, and I’m able to proudly report that I’m feeling great and healthy.  
+
+
+Despite those circumstances, I’ve tried as hard as I could with this year’s summer event.  
+The cast assembled might seem a bit suspicious, but it’s really nothing; just your usual summer merrymaking.  
+I was responsible for the main story, but there’s an awful amount of sub-stories this time around as well.  
+The activities of each doujin circle has been freely and delightfully brought to life by the writer team, with a smile on their faces, so there’s nothing this ServantFes doesn’t do, I think. You guys should all hold back a bit.
+
+Additionally, as this is another ServantFes, I’ve enlisted the help of tons of other creators this time as well.  
+I would like to use this opportunity to express my gratitude. Thanks to all of you for the awesome shot!  
+
+Also…  
+The music that plays for the boss this event is a banger remix and I want everyone to take a real good listen to it.  
+It’s got that parade feeling… that real-ass parade feeling!
+
+◆◆◆
+
+We go back in time, to 2022, May.
+
+“I want Knocknarea. Let’s make her a welfare. LB6 after-story, please? Please?”  
+“W-Well, maybe as a summer event. It’s the most unrestricted event, and all. After-story ain’t happening, though.”  
+“Yay. Okay, then I wanna draw summer Morgan.”  
+“(‘Okay’?) R-Right. Maybe that’d work if it’s as Tonelico…”  
+“Thanks, in return I’ll draw summer Artoria Caster too.”  
+“(‘In return’?) With this kinda cast it’s gonna be more calorie-rich than LB7, but dammit I’ll do it!”
+
+So that’s how this summer event came to be.  
+I couldn’t have imagined even for a second how I would become in 2023 back then… 
+
 ## 2022/12/25: The Time Has Come! (Kinoko)
 
 It’s gone by all too fast, but this year is hitting its climax.  
