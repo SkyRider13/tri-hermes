@@ -2,6 +2,63 @@
 
 Note: These lore-important diary entries are archived from the respective [Beast's Lair thread](https://forums.nrvnqsr.com/showthread.php/5875-The-BAMBOO-BROOM-DIARY-%28Nasu-and-Takeuchi-blog%29). More information in thread OP.
 
+## 2024/5/7: Goodnight 
+
+Fare thee well, Golden Week of 2024. May we meet again.  
+
+Hello. It's me, Kinoko, fearing the looming presence of reality approaching me tomorrow and wanting to launch everything 2 years into the future. That said, the year is still young and there's Elden to play in June, so with this much to look forward to, I'll refrain from passing the baton to my future self.  
+
+　　　◆
+
+Starting with the usual private life report.  
+
+* This Communication  
+It's finally over... I'm happy about this conclusion but I'll miss it... A miraculous survival battle mystery horror series that starts with a "Hey, mankind is doomed". In my personal opinion, this manga is so intriguing that I catch myself thinking Thiscomm is irreplaceable within its particular multi-genre tag and that no future manga will surpass it. It had a hold on my attention and interest since the first published chapter.  
+
+"But how do you make a long-running series out of a premise like this? The moment it gets repetitive, that spells the end to this narrative, are you aware?", says the worried reader learning about the rigidity of the base situation and its protagonist. But after a 12-volume-long without ever dropping the pacing, going off-rails, or diminishing its charm, it arrived at a wonderful resting place. The last image Monsieur Deluha saw was the perfect finish line for this manga. Wonderful 4 pages that made me feel refreshed, accomplished, and desolate. I wanted to see more (comedic) survival experiences from Deluha, the Huntresses, and the panicking Director, but my regrets were erased by the satisfaction brought by this neat ending where they simply go and do what they can as if it was the most natural thing in the world. That's what Thiscommunication always did. Even if we can't share the same values and essence, the die keeps rolling.  
+
+* Boku ga Koi suru Cosmic Star  
+I wrote the recommendation message for volume 3! Woohoo! Remember when volume 1 was coming out and I presented the series saying "[You can tell a good superhero story without needing any supervillains](https://tri-hermes.org/bamboo.html#_2023-8-11-a-report-kinoko)"? I still mean what I said, but that doesn't hold for volume 3. Well, we haven't gotten to a proper supervillain yet, but we're already getting to situations that can't be solved without fighting. Still, what a feel-good boy-meets-girl scenario...! I was already KO'd by the charm of these characters from the start, but with each new volume, the world around Star and Eichi gets progressively more lovely. I have a weakness for heroines who are personifications of astronomical objects, you see... I want to see more of Star's romantic side... I need everyone reading this one!  
+
+And I don't mean it as backlash from having written a really sinister Star lately.  
+
+　　◆
+
+Now to the usual production tidbits.  
+
+* Olga Marie Quest 2  
+Since I was doing the Christmas Event, I planned to wrap this one up in 5kb of text, but the script turned out bigger than anticipated. I should have known I can't keep it short with Olga Marie... Seeing her face makes my fingers type on their own... Weird, that was supposed to be just set-up for a challenge battle and nothing else...  
+
+For this battle, I made the team improve on what the previous one did wrong, resulting in a less problematic fight. As difficult as before but easier to try out. Enjoy whenever you have 30 minutes to spare talking to the president. Winning unlocks her profile, so go for it if you're interested in the info. I actually wanted to have her mark in every profile, but I had to give up because it was the same mark for all of them.  
+
+*After Night  
+Golden Week and Summer events want to give the player the experience of traveling, and that's why this one was set in a hot spring inn. 2 years ago, when I was asked to write the Mahoyo collab, what I had in mind was a Silent Hill on an ancient German castle, facing off against Kramer, the face of the medieval witch hunts, but for multiple reasons, that changed into the inn. A Japanese inn would be more effective in delivering the 80s mood, and when the title "The Robin Saw It All! Magicians Die Five Times!" popped up in my head, there was no turning back. It stayed "Five Times" until shortly before release, but it had to be changed to "Twice" to avoid a spoiler. "Twice" is technically not untrue.  
+
+Character information:  
+Design their kits using only content already revealed produced unappealing results, so I took the defiant using everything available. I felt like I was writing Mahoutsukai no Yoru 6. I had already decided before where each character would go after school so that part sorted itself out super quickly. By the way, the reveal that Kinomi becomes a ******** is something I already wrote before in the [Mahoutsukai no Yoru bonus movie pamphlet](). Be sure to check Kojika's page.  
+
+Soujuurou's Skill names don't come from the teachings of any existing martial art. I wouldn't actively want to give them names, but since they needed it, I thought this style of naming was the suitable option. The description of the 3rd Skill passed through inspection and censorship from the people of the mountain. Also, I have to agree that Super Aoko's 2nd Skill text turned out too cryptic, so I'll add some supplementary explanation (by that I mean a spoiler): The Milky Way is our galaxy, but the idea with this one is that for someone traveled to too distant of a time and is now searching far and wide for their far lost home.  
+
+Mrs. Ryougi: At this point in time, Shiki should be the woman emulating the man's mannerisms, but since the 「　」still hadn't appeared in FGO and the chronology here didn't match KnK either way, I made this dream version of 「　」Shiki. Consider it design reuse.  
+
+Mr. Shirou: Another case of design reuse. He's not Shirou from the Fsn timeline. In a different world, Shirou was born in a different era, had his own Fsn-esque adventure, and grew to old age. That's why I didn't reveal his surname.  
+
+Ishtalyne: What a cute 12-year-old cowgirl. I chose Space Ishtar over Ishtar due to the Rejuvenation Spring's gimmick. Because the sprite for that middle schooler Rin had already been made for SW2! So I asked Morii to draw 3 new expressions for schoolgirl Rin and he returned to me with a whole new sprite version. Lots of new poses and expressions. That monster. Thank you always!  
+
+1999: Only one person died in that Singularity. As mentioned in her profile, Alice can't die no matter what. Soujuurou already knew that at the time, so he went to the mountain to retrieve Alice's body, which he figured would be in suspended animation. Later, he came across that scene and decided that with his support, Aoko could solve the problem, consequently saving Alice.  
+
+Hoshi ga Matataku Konna Yoru ni: I really wanted that presentation in the final boss battle. My greatest fear was not being allowed to use the song for corporate or contractual reasons... But when examining the possibility, Ryo readily approved. Thank you! Thank you!
+
+It's really been over a decade now that I think about it, huh? The story being set in the 80s only solidified my decision to have a modern ending theme. Aniplex got Supercell to produce the ending. We asked expecting a no, but Ryo put effort and heart into the composition he sent us. I could feel the world more starry when I heard the sample. The way it breathed color into the aged Mahoyo got me shivering. I produced the event with a lot of focus on recreating that feeling in the final boss battle composition. I hope the favor feels repaid there.  
+
+The game version of Hoshi ga Matataku Konna Yoru ni is great, but the version in the album is better! Check it out!
+
+　　　◆
+
+And that was my April. See you again when it gets warm.  
+
+Oh, you want to know what's up with Alice's 3rd Ascension? I'll tell you eventually, when the next Night comes. 
+
 ## 2024/2/14: Untitled. (Kinoko)  
 
 I often find myself thinking about Alastor ever since last week, and when I’m not careful, I even start humming INSANE as well. I never imagined I would get this hooked on a character at the age that I’m in. Thanks Amazon Prime.  
