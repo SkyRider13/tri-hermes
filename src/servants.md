@@ -430,7 +430,7 @@ This section will be undergoing a mass overhaul, we apologize for the inconvenie
 | Servant | Material / In-Game Profile | Interlude | 
 |:--------:|:--------:|:--------:|  
 | Abigail Williams | [Material Profile](Servants/Profiles/Abigail-Williams.md) | [Interlude](Servants/Interludes/Abigail-Williams.md) |  
-| Katsushika Hokusai | [Material Profile](Servants/Profiles/Katsushika-Hokusai.md)] | |  
+| Katsushika Hokusai | [Material Profile](Servants/Profiles/Katsushika-Hokusai.md) | |  
 | Mysterious Heroine XX | [Material Profile](Servants/Profiles/MHXX.md) | |  
 | Yang Guifei | | |   
 | Voyager | | |   
