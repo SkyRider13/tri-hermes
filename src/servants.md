@@ -156,7 +156,8 @@ This section will be undergoing a mass overhaul, we apologize for the inconvenie
 | Gareth | [Material Profile](Servants/Profiles/Gareth.md) | |  
 | Mysterious Alter Ego Λ | [Material Profile](Servants/Profiles/Mysterious-AlterEgo-Λ.md) | |  
 | Caenis | | |   
-| Romulus=Quirinus | Utsumi Erice | | |   
+| Romulus=Quirinus | | |   
+| Utsumi Erice | | | 
 | Yu Mei-ren | [Material Profile](Servants/Profiles/Yu-Mei-ren-Lancer.md) | |   
 | Vritra | | |   
 | Fairy Knight Lancelot | | |   
