@@ -296,7 +296,8 @@ This section will be undergoing a mass overhaul, we apologize for the inconvenie
 | Mochizuki Chiyome | [Material Profile](Servants/Profiles/Mochizuki-Chiyome.md) | [Interlude](Servants/Interludes/Mochizuki-Chiyome.md) |  
 | Katou "Black Kite" Danzo | [Material Profile](Servants/Profiles/Katō-Danzō.md) | [Interlude](Servants/Interludes/Katō-Danzō.md) |  
 | Osakabehime | [Material Profile](Servants/Profiles/Osakabehime.md) | [Interlude](Servants/Interludes/Osakabehime.md) |  
-| Semiramis | Okada Izō | [Material Profile](Servants/Profiles/Okada-Izō.md) | |  
+| Semiramis | | |
+| Okada Izō | [Material Profile](Servants/Profiles/Okada-Izō.md) | |  
 | Ushiwakamaru | [Material Profile](Servants/Profiles/Ushiwakamaru-Assassin.md) | |  
 | Yu Mei-ren | [Material Profile](Servants/Profiles/Yu-Mei-ren.md) | [Interlude](Servants/Interludes/Yu-Mei-ren.md) |  
 | Li Shuwen (Old) | [Material Profile](Servants/Profiles/Li-Shuwen-Old.md) | [Interlude](Servants/Interludes/Li-Shuwen-Old.md) |  
